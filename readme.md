@@ -1,1 +1,1 @@
-George Ponamarev is my son.
+George and Alexander are my sons
